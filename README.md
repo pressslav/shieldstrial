@@ -9,6 +9,6 @@ g
 gf
 gggfgf
 ggg
-fff
+fffg
 ff
 ffff
