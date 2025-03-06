@@ -10,6 +10,6 @@ gff
 gggfgffх
 gggggf
 fffgg
-ff
+fff
 ffffggg
 hg
