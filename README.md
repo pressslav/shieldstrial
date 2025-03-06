@@ -2,7 +2,7 @@ fgg# shieldstrial
 
 upd
 ffff
-ggh
+gghg
 ggg
 gfs
 gfffbbbf
