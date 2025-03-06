@@ -9,7 +9,7 @@ g
 gf
 gggfgffх
 gggg
-fffg
+fffgg
 ff
 ffff
 hg
