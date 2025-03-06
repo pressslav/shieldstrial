@@ -5,7 +5,7 @@ fff
 ggh
 g
 ffgh
-g
+gf
 gfffbbb
 gggfgffхfjggfjfgg
 gggggfffggfghggdfg
