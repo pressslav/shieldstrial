@@ -1,4 +1,4 @@
-# shieldstrial
+g# shieldstrial
 
 upd
 fff
@@ -8,4 +8,4 @@ ff
 g
 g
 ggg
-g
+gg
