@@ -7,9 +7,9 @@ g
 ffg
 g
 gfffbbb
-gggfgffхfjggfj
+gggfgffхfjggfjf
 gggggfffggfgh
 fffgggnjf
 fffgggghbf
-ffffggg
+ffffgggf
 hgggf
