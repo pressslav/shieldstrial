@@ -8,7 +8,7 @@ ff
 g
 gf
 gggfgffх
-gggg
+ggggg
 fffgg
 ff
 ffff
