@@ -8,8 +8,8 @@ ff
 g
 gf
 gggfgffх
-ggg
+gggg
 fffg
 ff
 ffff
-h
+hg
