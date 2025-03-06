@@ -6,7 +6,7 @@ ggh
 g
 ffgh
 gf
-gfffbbb
+gfffbbbf
 gggfgffхfjggfjfggf
 gggggfffggfghggdfgffg
 fffgggnjfff
